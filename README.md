@@ -5,7 +5,7 @@
 
 -👯 I’m looking to collaborate with other content creators.
 
--🥅 2021 Goals: Build More websites and Increase My knowledge in Web-design.
+-🥅 2021 Goals: Build More website, create different Frontend And Backend Programs.
 
 -⚡ Fun fact: I like playing Basketball, videogames and Guitar.
 
