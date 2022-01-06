@@ -1,6 +1,6 @@
 ### Hi there, I'm Benjamin- aka [Bennjo] 👋
 
-## Currently Livin in Munich Germany
+## Currently Living in Munich Germany
 -🌱 I’m currently learning everything 🤣
 
 -👯 I’m looking to collaborate with other content creators.
